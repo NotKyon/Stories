@@ -10,3 +10,7 @@ Here's a collection of my (short) stories.
   straight. Has references to Kanon, Higurashi, Umineko, and the two stories
   above. (Note: This is a mystery.)
 
+Fanfic:
+
+- [**AIR Fanfic**](AIR Fanfic.md) ― A fanfic of AIR that takes place prior to
+  Yukito's journey.
