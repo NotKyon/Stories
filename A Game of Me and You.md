@@ -4,7 +4,8 @@ move first, you create an opening on your side. If your opponent moves first,
 then they've created an opening on their side.
 
 That said, even if you have to create an opening, isn't it worth it to spend
-time with each other? Isn't it lonely to oppose each other from the beginning?
+time with each other? Although... isn't it lonely to oppose each other from the
+beginning?
 
 You were given a slab. It said the rules were as follows. The slab, however, is
 inanimate. It has no power on its own. The rules which are enacted are the rules
