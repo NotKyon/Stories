@@ -3,8 +3,8 @@ who had the first move, or was it your opponent? Think of it this way, if you
 move first, you create an opening on your side. If your opponent moves first,
 then they've created an opening on their side.
 
-That said, even if you have to create an opening, isn't it lonely to oppose each
-other from the beginning?
+That said, even if you have to create an opening, isn't it worth it to spend
+time with each other? Isn't it lonely to oppose each other from the beginning?
 
 You were given a slab. It said the rules were as follows. The slab, however, is
 inanimate. It has no power on its own. The rules which are enacted are the rules
@@ -21,8 +21,8 @@ So again, is that really your goal? Again, isn't that lonely?
 
 Maybe those were the thoughts that brought me here.
 
-Taking the pill I had stashed in my coat's pocket, I head into the ominous
-church. It's empty save for the one I can leave my confession with.
+Taking the pill I had stashed in my coat pocket, I head into the ominous church.
+It's empty save for the one I can leave my confession with.
 
 To the man hidden on the other side, I confess. To this stranger, I confess of
 my wrongdoings. I confess of my personal problems. I confess of my sins. Am I
@@ -73,7 +73,7 @@ together.
 That person was my ally; the real enemy was me.
 
 It was me who had ruined everything. My ally had only wanted to spend time with
-me... yet I tossed them aside, asserting that victory would be mine. asserting
+me... yet I tossed them aside, asserting that victory would be mine. Asserting
 not just with words or intent, but with solid action.
 
 I confess as much to the stranger veiled in darkness, hidden on the other side
