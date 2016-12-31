@@ -579,7 +579,7 @@ who you would get in fights with but then bond over some trivial thing?
 - What would you consider parents to be?
 
 Are your parents the ones who brought about your life? The sort of people who
-you would claim unconditional love simply because they made you, not caring if
+would claim unconditional love simply because they made you, not caring if
 you're a monster?
 
 In this world, there is a severe discrimination against catpeople. They aren't a
