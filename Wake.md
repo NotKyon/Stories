@@ -44,7 +44,7 @@ world, a chance to change the outcome... Not just a second chance either, but a
 third as well. Even a fourth, and a fifth, ... as many chances as you wanted!
 
 Even so, even trying your best the second time, the third time, the fourtieth
-time, the five-hunredth time, the six-thousandth time... even trying your best
+time, the five-hundredth time, the six-thousandth time... even trying your best
 each time, earnestly changing the world, yourself, everything... but that fate
 doesn't change...
 

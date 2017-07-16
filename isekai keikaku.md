@@ -110,7 +110,7 @@ He broke our parenthesized chat! Oh well, it was... slightly fun.
 
 :3c
 
-"So how are we going to go to another world! My IsekaiPara awaits!"
+"So how are we going to go to another world!? My IsekaiPara awaits!"
 
 "... You don't seriously think you can get to another world, do you?"
 
@@ -122,12 +122,12 @@ He broke our parenthesized chat! Oh well, it was... slightly fun.
 
 "First of all, what would you title your plan to get to another world?"
 
-"Isekai Keikaku(TM)."
+"Isekai Keikaku™."
 
 "It's trademarked already!?"
 
 "No no, I'm only claiming it's trademarked. If it were registered I could use
-(R), but it's not so I can't. It would be impossible to type that."
+'®', but it's not so I can't. It would be impossible to type that."
 
 "That aside (including the trademark), the problem is your thinking. Look,
 you've gone and titled it 'Isekai Keikaku' right? That only means you're
@@ -141,14 +141,14 @@ even have 're:' in the name!"
 
 "Eh!? But, but... I WWW that!"
 
-"But that's just you, right? Who else WWW that? Nobody! Maybe. Anyway, you need
-a better name."
+"That's just you though, right? Who else WWW that? Nobody! Maybe. Anyway, you
+need a better name."
 
-"Uguu, but my name is fine just the way it is!"
+"Uguu, but my name is fine just the way it is!" (Reference to Kanon's Ayu)
 
 "Don't just copy my waifu."
 
-"Geh! Dx"
+"Geh! Dx" (Reference to an obscure meme of Rewrite's Chihaya)
 
 "That's fine, you can copy her. The best part of her route anyway was the
 butler. So. Do you have a title then?"
@@ -195,13 +195,13 @@ at all? (^_^)～☆"
 
 "Wellll, ever since the police came and investigated daddy's computer I was
 banned from looking up pixivs on it. Soooo instead I used it to hack into a
-certain magical bank account and then exploited a zero-day in a certain magical
-ATM machine which caused it to spit out money at just the right time. I then
-stealthily collected the money by having socially engineered a pedo-scumbag to
-go pick it up for me. It was a little creepy learning that he divorced his waifu
-for me... anyhow, a certain magical police organization had somehow received a
-tip for exactly where he'd be and the operation was a success. Though not before
-I received my money."
+certain magical bank account and then exploited a zero-day in a certain
+scientific ATM machine which caused it to spit out money at just the right time.
+I then stealthily collected the money by having socially engineered a
+pedo-scumbag to go pick it up for me. It was a little creepy learning that he
+divorced his waifu for me... anyhow, a certain magical police organization had
+somehow received a tip for exactly where he'd be and the operation was a
+success. Though not before I received my money."
 
 "... Your story has holes."
 
@@ -261,7 +261,7 @@ powerfully and it hit the floor quicker than I had anticipated. I hadn't
 anticipated my typically lazy okaa-san to actually clean the table! Nor did I
 think the phone would be able to route that much power into the vibration system
 without the overheat protection system activating. Alas, such is the life of a
-Samsuhngg flagship device."
+Shamsungg flagship device."
 
 "O-oh..."
 
