@@ -3,7 +3,7 @@
 "Hey, Mika, which one should I use for these leaves?"
 
 Alice was sitting under the ginkgo trees with her childhood friend. Studying her
-surrounding and reviewed the palette as best as she could. To be certain, she
+surroundings and reviewed the palette as best as she could. To be certain, she
 tugged on Mika's shirt before asking which color to use for the leaves.
 Distinguishing hues would be a simple matter, but for her it was limited rather
 to the intensity, to the luminosity.
@@ -34,7 +34,7 @@ Overnight, without warning, the world ended.
 Oh, I'm Alice, by the way. Not that names matter too much at the moment. Anyway,
 I'll explain.
 
-Pieces of the world are disintigrating away. Asphault is floating, suspended
+Pieces of the world are disintigrating away. Asphalt is floating, suspended
 in the air. Water is flowing at irregular paces. Buildings had been falling in
 a loop for the past few hours, like the sort of glitch you'd see in a buggy
 video game.
